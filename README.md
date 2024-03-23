@@ -1,2 +1,2 @@
 # AIML
-I am CAvinashreddy. I am from department of AIML .
+I am CAvinashreddy. I am from department of AIML student .
